@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ashommy
-- 👀 I’m interested in ... problem solving..
+- 👀 I’m interested in .. blockchain..
 - 🌱 I’m currently learning ... #BCA 
 - 📫 How to reach me ... ash.ommy17@gmail.com
 
